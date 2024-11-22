@@ -1,5 +1,9 @@
 22 listopada w Radomiu odbędzie się gala Babilon MMA 49, podczas której kibice zobaczą dziesięć pojedynków. W najważniejszym z nich Paweł Polityło stanie do obrony tytułu mistrzowskiego Babilon MMA w kategorii piórkowej w starciu z Błażejem Majdanem.
 
+na żywo ::: https://bestones.icu/babilon_mma_49/
+
+na żywo ::: https://bestones.icu/babilon_mma_49/
+
 Wyniki gali Babilon MMA 49: Polityło vs Majdan na żywo od godziny 19:00.
 Walka wieczoru
 
